@@ -6,3 +6,5 @@ Setelah selesai men-download aplikasi, lakukan registrasi akun Anda dan aktifkan
 
 Login menggunakan akun Anda, dan nikmati program terlengkap sepakbola dalam aplikasi Super Soccer TV.
 
+Akses website Super Soccer TV dapat Anda nikmati pada browser yang sudah support dengan sistem layanan Super Soccer TV. Terdapat kemungkinan beberapa versi perangkat mobile phone atau tab dengan browser tertentu yang tidak dapat maksimal mengakses Super Soccer TV. Silahkan hubungi customer service Super Soccer TV saat mengalami kendala layanan. 
+
