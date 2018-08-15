@@ -7,7 +7,8 @@
    * Chinese Super League musim 2018 \(berakhir November 2018\)
    * Copa Sudamericana musim 2018 \(berakhir Desember 2018\)
    * Copa Libertadores musim 2018 \(berakhir November 2018\)
-3. Video on demand berupa film dokumenter klub sepakbola, profil pemain, dan film-film bertemakan sepakbola lainnya.
+   * UEFA Nations League musim 2018/2019 \(berakhir Juli 2019\)
+3. Video On Demand \(VOD\) berupa film dokumenter klub sepakbola, profil pemain, dan film-film bertemakan sepakbola lainnya.
 
 Bagi Anda yang ingin menyaksikan program-program di Super Soccer TV dengan kualitas Full HD, Anda dapat mengaktifkan paket Full HD di Super Soccer TV.
 
