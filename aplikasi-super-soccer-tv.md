@@ -6,5 +6,5 @@ Bagi Anda pengguna android, aplikasi Super Soccer TV bisa Anda download di googl
 
 Anda bisa menikmati semua layanan Super Soccer TV pada aplikasi Super Soccer, termasuk melakukan proses registrasi, membeli paket langganan, sampai menonton pertandingan live maupun replay. 
 
-Download aplikasi SuperSoccer TV pada Smartphone Anda melalui Google Play \(klik [**di sini**](https://play.google.com/store/apps/details?id=air.com.arm_enterprises.supersoccer.england2014&hl=en)\) atau Apple Store \(klik [**di sini**](https://itunes.apple.com/tr/app/supersoccer-tv/id902290991?mt=8)\)
+Download aplikasi SuperSoccer TV pada Smartphone Anda melalui Google Play \(klik [**di sini**](https://play.google.com/store/apps/details?id=air.com.arm_enterprises.supersoccer.england2014&hl=en)\) atau Apple Store \(klik [**di sini**](https://itunes.apple.com/tr/app/supersoccer-tv/id902290991?mt=8)\). 
 
