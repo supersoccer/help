@@ -6,6 +6,6 @@
 * [Bagaimana cara membuat akun Super Soccer TV?](bagaimana-cara-membuat-akun-super-soccer-tv.md)
 * [Apa itu Soccer Show?](apa-itu-soccer-show.md)
 * [Bagaimana cara menyaksikan program Super Soccer TV melalui Handphone?](bagaimana-cara-menyaksikan-program-super-soccer-tv-melalui-handphone.md)
-* [Terms and Conditions](terms.md)
+* [Syarat dan Ketentuan](terms.md)
 * [Privacy](privacy.md)
 

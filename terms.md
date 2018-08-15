@@ -1,4 +1,4 @@
-# Terms and Conditions
+# Syarat dan Ketentuan
 
 ## Member Yth:
 
