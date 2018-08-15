@@ -1,4 +1,4 @@
-# Terms
+# Terms and Conditions
 
 ## Member Yth:
 
